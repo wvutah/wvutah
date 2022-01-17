@@ -1,4 +1,1 @@
-Just a n00b coder trying to learn all the things. 
-
-System Failure..........
-
+Cyber Intel | Game Theory | Digital Virology | Python Programming | WebDev | Information Operations/Warfare.
